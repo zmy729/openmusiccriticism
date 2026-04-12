@@ -1,6 +1,6 @@
 # 양자호<PHANTOM OF THE OPEAR>-공연 프리뷰
 
-2024년 8월 27일, 상하이 대극원에서 영어 오리지널 뮤지컬 <PHANTOM OF THE OPEAR>가 이미 상연되었다. 이번 공연에서는 오페라 가수 Jonathan Roxmouth가 Phantom 역을, Grace Roberts가 Christine Daae 역을 맡아 무대에 올랐다.
+2026년 9월 29일, 상하이 대극원에서 영어 오리지널 뮤지컬 <PHANTOM OF THE OPEAR>가 이미 상연되었다. 이번 공연에서는 오페라 가수 Jonathan Roxmouth가 Phantom 역을, Grace Roberts가 Christine Daae 역을 맡아 무대에 올랐다.
 이 작품은 1986년 10월 9일, 런던의 여왕 폐하 극장에서 초연되었으며, Michael Crawford와 Sarah Brightman이 주연을 맡아 ‘전설적인’ 세계 뮤지컬의 시작을 알렸다.
 Andrew Lloyd Webber의 매혹적인 음악과 웅장하고 화려한 무대, 그리고 뛰어난 배우들의 열연이 어우러진 이 작품은 전 세계 46개국 193개 도시에서 공연되며 1억 6천만 명 이상의 관객을 사로잡았다. 또한 70개 이상의 주요 공연 예술 상을 수상하며, 지금까지도 변함없는 사랑을 받는 대표적인 뮤지컬로 자리 잡고 있다.
 
